@@ -1,4 +1,4 @@
-![alt Image](https://github.com/user-attachments/assets/8419b33d-11c2-4d45-ade3-cc0d920cf718) 
+![alt Image](https://github.com/user-attachments/assets/096ba3b9-d937-46f6-bf67-c1891591d046) 
                                            
-$$\color{#38764A}\text{☾ ⊹ ℎ𝑒 | 𝑡ℎ𝑒𝑦 ꒷ ꒦}$$
-$$\color{#746E3E}\text{𝑖 𝑗𝑢𝑠𝑡 𝑓𝑖𝑛𝑑 𝑡ℎ𝑖𝑠 𝑟𝑎𝑟𝑒𝑝𝑎𝑖𝑟 𝑐𝑢𝑡𝑒 𝑑𝑜𝑛𝑡 𝑚𝑖𝑛𝑑 𝑖𝑡}$$
+$$\color{#625B2E}\text{ 𝘩𝘦 | 𝘵𝘩𝘦𝘺 }$$
+$$\color{#42132B}\text{𝘩𝘦'𝘴 𝘴𝘰 𝘶𝘨𝘭𝘺}$$
